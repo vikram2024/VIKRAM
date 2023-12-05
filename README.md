@@ -12,8 +12,8 @@
 
 🔍 Always eager to learn and grow, I'm actively participating in hackathons and online courses to stay updated with the latest advancements in AI technology.
 
-📫 Reach Me Through-vikramapandianu2020ai@gmail.com
+📫 Reach Me Through -vikramapandianu2020ai@gmail.com
 
 🌐 Codechef-https://www.codechef.com/users/vikrama1446
      
-    Hackerrank-ttps://www.hackerrank.com/profile/vikramapandianu1
+    Hackerrank -https://www.hackerrank.com/profile/vikramapandianu1
